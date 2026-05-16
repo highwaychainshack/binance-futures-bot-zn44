@@ -1,4 +1,4 @@
-# 
+# Get the ultimate binance futures bot with advanced binance futures bot | scalping + isolated-margin. Featuring scalping and isolated-margin, it's the best choice for automated
 
 
 
